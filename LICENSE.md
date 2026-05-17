@@ -1,4 +1,4 @@
-
+Top escape tsunami for brainrots scripts é o melhor escape tsunami for brainrots scripts com atualização automática e cura automática. Seguro, confiável e otimizado para máximo
 
 
 
